@@ -1,2 +1,0 @@
-# Khumair-Ammanullah
-Porfolio
